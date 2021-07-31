@@ -1,1 +1,1 @@
-Optimisez un site web existant: Amélioration du référencement
+Optimisez un site web existant: Amélioration du SEO d'un site
